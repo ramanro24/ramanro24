@@ -24,7 +24,7 @@
 🔹 Version Control: Git & GitHub 🖥️
 
 📬 Let’s Connect!
-💼 LinkedIn
+💼 LinkedIn :  www.linkedin.com/in/rohit-raman-72287294
 📧 therohit24@gmail.com
 📱 +1-647-978-2492
 
